@@ -15,4 +15,4 @@
 平台还注重用户的隐私保护，所有浏览和数据都会通过HTTPS加密传输，保证用户的个人信息不被泄露。平台不允许恶意广告弹出，确保用户能够专心观看影片。  
 综上所述，久久人妻精品免费一区平台凭借高清画质、免注册免下载、丰富的分类功能和隐私保护，成为了很多影迷首选的观看平台。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/job234543/ribentt19 )</span>
